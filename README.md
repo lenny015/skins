@@ -15,8 +15,8 @@
 # [zoomer edit](https://lenny-hyphen.s-ul.eu/ovGEvPhI)
 [![](https://i.ibb.co/zmnh8pt/screenshot291.jpg)](https://lenny-hyphen.s-ul.eu/ovGEvPhI)
 
-# [dt](https://lenny-hyphen.s-ul.eu/AE8g1fjC)
-[![](https://i.ibb.co/YjQ7sCD/screenshot292.jpg)](https://lenny-hyphen.s-ul.eu/AE8g1fjC)
+# [dt](https://lenny-hyphen.s-ul.eu/StFR5p5U)
+[![](https://i.ibb.co/YjQ7sCD/screenshot292.jpg)](https://lenny-hyphen.s-ul.eu/StFR5p5U)
 
 # [hd2](https://lenny-hyphen.s-ul.eu/FM3mjDKd)
 [![](https://i.ibb.co/5TFYxzC/screenshot293.jpg)](https://lenny-hyphen.s-ul.eu/FM3mjDKd)
